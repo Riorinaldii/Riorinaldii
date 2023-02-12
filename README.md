@@ -5,11 +5,8 @@
 
 
 
-- 🔭 I’m currently working on ****
 
 - 🌱 I’m currently learning **DevOps**
-
-- 💬 Ask me about ****
 
 - 📫 How to reach me **riorinaldi.my@gmail.com**
 
