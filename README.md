@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **riorinaldi.my@gmail.com**
 
-- ⚡ Fun fact **coffee enthusiast**
+- ⚡ **coffee enthusiast**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
