@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **DevOps**
 
-- 📫 How to reach me **riorinaldi.my@gmail.com**
+- 📫 Contact me **riorinaldi.my@gmail.com**
 
 - ⚡ **coffee enthusiast**
 
